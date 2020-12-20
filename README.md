@@ -1,1 +1,0 @@
-# shimpark.github.io
